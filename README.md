@@ -1,7 +1,7 @@
 # Yo, I’m @TheAndileLanga
 ## About Me 
 Hi, I am *The Andile Langa*, but you can call me Andile. I'm a graphic designer, digital artist/illustrator and animator. 
-Most days you can find me at `LGA Media` designing websites and exceeding expectations for clients, of course when I'm not doing all that 
+Most days you can find me at `LGA Media designing websites and helping my clients with all their online presence needs, of course when I'm not doing that 
 I'm drawing, writing and making pictures move. 
 
 ## My interests 
